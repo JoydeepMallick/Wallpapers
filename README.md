@@ -2,8 +2,8 @@
 
 The heaven for your laptop screen is right here!
 
-Pls😨 I swear these ain't the links from where I got some of them [1](https://www.uhdpaper.com/search?q=Digital+Art&by-date=true), [2](https://www.uhdpaper.com/2024/01/fox-anime-girl-forest-4k-8k-8990i.html), [3](https://www.uhdpaper.com/2024/10/142b-anime-girl-black-cat-4k.html), [4](https://www.uhdpaper.com/2024/06/ocean-car-floating-full-moon-4k-6640j.html), [5](https://www.uhdpaper.com/2024/05/fantasy-scenery-moutain-sky-4k-8163a.html), [6](https://www.uhdpaper.com/2024/05/surfboard-ocean-sunset-scenery-4k-6803a.html), [7](https://www.uhdpaper.com/2024/08/anime-girl-nun-4k-1252a.html), [8](https://www.uhdpaper.com/2024/03/tiger-animal-art-4k-2440j.html), [9](https://www.uhdpaper.com/2024/04/snake-4k-2393a.html), [10
-](https://www.uhdpaper.com/2024/04/alone-sunset-horizon-tree-sky-4k-1503a.html), 
+Pls😨 I swear these ain't the links from where I got some of them [1](https://www.uhdpaper.com/search?q=Digital+Art&by-date=true), [2](https://www.uhdpaper.com/2024/01/fox-anime-girl-forest-4k-8k-8990i.html), [3](https://www.uhdpaper.com/2024/10/142b-anime-girl-black-cat-4k.html), [4](https://www.uhdpaper.com/2024/06/ocean-car-floating-full-moon-4k-6640j.html), [5](https://www.uhdpaper.com/2024/05/fantasy-scenery-moutain-sky-4k-8163a.html), [6](https://www.uhdpaper.com/2024/05/surfboard-ocean-sunset-scenery-4k-6803a.html), [7](https://www.uhdpaper.com/2024/08/anime-girl-nun-4k-1252a.html), [8](https://www.uhdpaper.com/2024/03/tiger-animal-art-4k-2440j.html), [9](https://www.uhdpaper.com/2024/04/snake-4k-2393a.html), [10](https://www.uhdpaper.com/2024/04/alone-sunset-horizon-tree-sky-4k-1503a.html) 
+
 ## NOTE
 
 Do not like😟 the resolution, no worries😸!
