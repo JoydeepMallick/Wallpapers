@@ -2,9 +2,21 @@
 
 The heaven for your laptop screen is right here!
 
+This is a not just a collection, rather my addiction for art!😻
+
+---
+### ⚠️ Need contributors 
+who can rename the wallpapers to something more suitable, `issue already filed`!
+
+---
+
 Pls😨 I swear these ain't the links from where I got some of them (**in decreasing order of priority**) :-
 
 - [This dharmax github profile](https://github.com/dharmx/walls) : Cool guy by the way!😎
+
+- [This gruvbox wallpaper website](https://gruvbox-wallpapers.pages.dev/) : Like the taste🍷
+
+- [orangci's wallpapers](https://github.com/orangci/walls): Also has a catpuccin version
 
 - [uhdpaper](https://www.uhdpaper.com) : few cool image sample(s) here { [1](https://www.uhdpaper.com/search?q=Digital+Art&by-date=true), [2](https://www.uhdpaper.com/2024/01/fox-anime-girl-forest-4k-8k-8990i.html), [3](https://www.uhdpaper.com/2024/10/142b-anime-girl-black-cat-4k.html), [4](https://www.uhdpaper.com/2024/06/ocean-car-floating-full-moon-4k-6640j.html), [5](https://www.uhdpaper.com/2024/05/fantasy-scenery-moutain-sky-4k-8163a.html), [6](https://www.uhdpaper.com/2024/05/surfboard-ocean-sunset-scenery-4k-6803a.html), [7](https://www.uhdpaper.com/2024/08/anime-girl-nun-4k-1252a.html), [8](https://www.uhdpaper.com/2024/03/tiger-animal-art-4k-2440j.html), [9](https://www.uhdpaper.com/2024/04/snake-4k-2393a.html), [10](https://www.uhdpaper.com/2024/04/alone-sunset-horizon-tree-sky-4k-1503a.html) } 
 
@@ -27,6 +39,9 @@ Use AI Upscalers to Upscale it, if you have any VULCAN supported device do it di
 
 Trust me! you wont regret it!!!😻
 
+## 🙀MEOW!!!
+
+[![Stargazers over time](https://starchart.cc/JoydeepMallick/Wallpapers.svg?variant=adaptive)](https://starchart.cc/JoydeepMallick/Wallpapers)
 
 ## BTW
 
