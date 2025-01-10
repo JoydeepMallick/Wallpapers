@@ -31,6 +31,8 @@ Pls😨 I swear these ain't the links from where I got some of them (**in decrea
 
 - [wallpaperhaven.cc](https://wallhaven.cc/search?q=id%3A853&sorting=random&ref=fp&seed=kaKL4j&page=4)
 
+There are tonnes of people who collect Wallpapers, just search for [Wallpapers in Github](https://github.com/topics/wallpapers)💘!
+
 ## NOTE
 
 Do not like😟 the resolution, no worries😸!
