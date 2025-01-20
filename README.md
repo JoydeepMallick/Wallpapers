@@ -5,7 +5,7 @@ The heaven for your laptop screen is right here!
 This is a not just a collection, rather my addiction for art!😻
 
 ---
-### ⚠️ Need contributors 
+### <img src="https://i.imgur.com/a1fyRka.gif" width=25> Need contributors 
 who can rename the wallpapers to something more suitable, `issue already filed`!
 
 ---
@@ -30,6 +30,8 @@ Pls😨 I swear these ain't the links from where I got some of them (**in decrea
 - [wallpaperflare](https://www.wallpaperflare.com) : few cool image sample(s) here { [1](https://www.wallpaperflare.com/ai-ai-art-ai-dai-meaningjun-garden-ai-painting-violet-wallpaper-ygtxo), [2](https://www.wallpaperflare.com/search?wallpaper=waifu) }
 
 - [wallpaperhaven.cc](https://wallhaven.cc/search?q=id%3A853&sorting=random&ref=fp&seed=kaKL4j&page=4)
+
+There are many more which I do not recollect, some of which no more exist😿 but gave me inspiration to make this collection!
 
 There are tonnes of people who collect Wallpapers, just search for [Wallpapers in Github](https://github.com/topics/wallpapers)💘!
 
