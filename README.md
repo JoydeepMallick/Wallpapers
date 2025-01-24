@@ -24,10 +24,12 @@ Pls😨 I swear these ain't the links from where I got some of them (**in decrea
 
 - [deviantart](https://www.deviantart.com) : few cool image sample(s) here { [1](https://www.deviantart.com/angel-face125/art/Angel-112-1137618284) }
 
-- [theanimegallery](https://theanimegallery.com/) : few cool image sample(s) here { [1](https://theanimegallery.com/image/ff5r3UV43faeZb3LVCeC/anime-wallpaper-for-pc-3), [2](https://theanimegallery.com/image/09lNLGjBxbsIstzc0gpB/pink-anime-wallpaper-1) }
+- [theanimegallery](https://theanimegallery.com/) : few cool image sample(s) here { [1](https://theanimegallery.com/image/ff5r3UV43faeZb3LVCeC/anime-wallpaper-for-pc-3), [2](https://theanimegallery.com/image/09lNLGjBxbsIstzc0gpB/pink-anime-wallpaper-1) } ⬅️ many good mobile wallpapers present (my POV🐈)
 
 
 - [wallpaperflare](https://www.wallpaperflare.com) : few cool image sample(s) here { [1](https://www.wallpaperflare.com/ai-ai-art-ai-dai-meaningjun-garden-ai-painting-violet-wallpaper-ygtxo), [2](https://www.wallpaperflare.com/search?wallpaper=waifu) }
+
+- [peakpx](https://www.peakpx.com/): few cool image sample(s) here { [1](https://www.peakpx.com/en/hd-wallpaper-desktop-kruvv/), [2](https://www.peakpx.com/en/hd-wallpaper-desktop-koqik) } ⬅️ many good mobile wallpapers present (my POV🐈)
 
 - [wallpaperhaven.cc](https://wallhaven.cc/search?q=id%3A853&sorting=random&ref=fp&seed=kaKL4j&page=4)
 
