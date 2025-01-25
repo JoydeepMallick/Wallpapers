@@ -6,7 +6,20 @@ This is a not just a collection, rather my addiction for art!😻
 
 ---
 ### <img src="https://i.imgur.com/a1fyRka.gif" width=25> Need contributors 
-who can rename the wallpapers to something more suitable, `issue already filed`!
+
+1. who can rename the wallpapers to something more suitable, `issue already filed`!
+
+2. Have thought about some grouping to make the repo less clutered😿probably purred my cat too much!
+    - Minimal
+    - Abstract
+    - AI Gonna take over
+    - Waifu😽
+    - Anime 
+    - Digital Painting <-- ⚠️ need to differentiate from anime
+    - Natural <-- for those animals and natural images no digital touch
+    - Movies, Characters, Paintings <-- ⚠️need advice
+
+Any recommendations appreciated!
 
 ---
 
