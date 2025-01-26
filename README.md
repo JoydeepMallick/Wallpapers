@@ -37,7 +37,7 @@ Pls😨 I swear these ain't the links from where I got some of them (**in decrea
 
 - [freepik.com](https://www.freepik.com) : few cool image sample(s) here { [1](https://www.freepik.com/free-photos-vectors/desktop-wallpaper-anime/2#uuid=c8a6a9df-9203-41b7-bbe5-464f9e12acfd) } warning: limited download limit per day😢
 
-- [deviantart](https://www.deviantart.com) : few cool image sample(s) here { [1](https://www.deviantart.com/angel-face125/art/Angel-112-1137618284) }
+- [deviantart](https://www.deviantart.com) : few cool image sample(s) here { [1](https://www.deviantart.com/angel-face125/art/Angel-112-1137618284), [2](https://www.deviantart.com/guweiz/gallery) }
 
 - [theanimegallery](https://theanimegallery.com/) : few cool image sample(s) here { [1](https://theanimegallery.com/image/ff5r3UV43faeZb3LVCeC/anime-wallpaper-for-pc-3), [2](https://theanimegallery.com/image/09lNLGjBxbsIstzc0gpB/pink-anime-wallpaper-1) } ⬅️ many good mobile wallpapers present (my POV🐈)
 
