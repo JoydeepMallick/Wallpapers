@@ -10,12 +10,13 @@ This is a not just a collection, rather my addiction for art!😻
 1. who can rename the wallpapers to something more suitable, `issue already filed`!
 
 2. Have thought about some grouping to make the repo less clutered😿probably purred my cat too much!
-    - Minimal
+    - Minimalist ✅
     - Abstract
-    - AI Gonna take over
+    - AI AI AI ✅
     - Waifu😽
     - Anime 
-    - Digital Painting <-- ⚠️ need to differentiate from anime
+    - Digital Painting
+    - Painting from those majestic brushes
     - Natural <-- for those animals and natural images no digital touch
     - Movies, Characters, Paintings <-- ⚠️need advice
 
