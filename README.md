@@ -45,6 +45,8 @@ Pls😨 I swear these ain't the links from where I got some of them (**in decrea
 
 - [wallpaperflare](https://www.wallpaperflare.com) : few cool image sample(s) here { [1](https://www.wallpaperflare.com/ai-ai-art-ai-dai-meaningjun-garden-ai-painting-violet-wallpaper-ygtxo), [2](https://www.wallpaperflare.com/search?wallpaper=waifu) }
 
+- [wallpaperbetter](https://www.wallpaperbetter.com/) : the english version of the page lands to wallpaperflare but this website has some cool collection which I could not find in wallpaperflare😶
+
 - [peakpx](https://www.peakpx.com/): few cool image sample(s) here { [1](https://www.peakpx.com/en/hd-wallpaper-desktop-kruvv/), [2](https://www.peakpx.com/en/hd-wallpaper-desktop-koqik) } ⬅️ many good mobile wallpapers present (my POV🐈)
 
 - [wallpaperhaven.cc](https://wallhaven.cc/search?q=id%3A853&sorting=random&ref=fp&seed=kaKL4j&page=4)
