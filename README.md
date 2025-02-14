@@ -54,6 +54,8 @@ Pls😨 I swear these ain't the links from where I got some of them (**in decrea
 
 - [wallpaperhaven.cc](https://wallhaven.cc/search?q=id%3A853&sorting=random&ref=fp&seed=kaKL4j&page=4)
 
+- [wallhaven.cc](https://wallhaven.cc): few cool image sample(s) here {[1](https://wallhaven.cc/w/we66g6)}
+
 There are many more which I do not recollect, some of which no more exist😿 but gave me inspiration to make this collection!
 
 There are tonnes of people who collect Wallpapers, just search for [Wallpapers in Github](https://github.com/topics/wallpapers)💘!
