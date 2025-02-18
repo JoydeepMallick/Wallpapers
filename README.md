@@ -28,13 +28,25 @@ Any recommendations appreciated!
 
 Pls😨 I swear these ain't the links from where I got some of them (**in decreasing order of priority**) :-
 
-- [This dharmax github profile](https://github.com/dharmx/walls) : Cool guy by the way!😎
+### Cool guys listed below, just scroll down!😎
 
-- [This gruvbox wallpaper website](https://gruvbox-wallpapers.pages.dev/) : Like the taste🍷
+- [dharmax's walls](https://github.com/dharmx/walls) : Fantastico😱
 
-- [imag.co wallpapers](https://www.iamag.co/your-name-100-original-background-collection/) : Nice anime scenery wallpapers
+- [AngelJumbo's gruvbox wallpaper website](https://gruvbox-wallpapers.pages.dev/) : Like the taste🍷
 
 - [orangci's wallpapers](https://github.com/orangci/walls): Also has a catpuccin version
+
+- [JaKooLit's collection](https://github.com/JaKooLit/Wallpaper-Bank)
+
+- [S4NKALP's collection](https://github.com/S4NKALP/Wallpapers)
+
+- [faizan-20's wallpees](https://github.com/faizan-20/wallpees)
+
+- [linuxdotexe's nordic-wallpapers](https://github.com/linuxdotexe/nordic-wallpapers)
+
+### Solid website with awesome creators😺
+
+- [imag.co wallpapers](https://www.iamag.co/your-name-100-original-background-collection/) : Nice anime scenery wallpapers
 
 - [pixiv.net](https://www.pixiv.net/en/) : Solid fan arts and waifu creations😻
 
