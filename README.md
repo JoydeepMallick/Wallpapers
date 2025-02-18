@@ -12,11 +12,12 @@ This is a not just a collection, rather my addiction for art!😻
 2. Have thought about some grouping to make the repo less clutered😿probably purred my cat too much!
     - Minimalist ✅
     - Mobile ✅ Only for smartphones
-    - Abstract
     - AI AI AI ✅
     -PureShots ✅ Only for actual photos with photoshopping but no digital art or painting
     - TimelessPainting ✅ Only paintings made with actual brushes and colors from creators
     - VideoWallpapers ✅
+    - WideScreen ✅
+    - Abstract
     - Waifu😽
     - Anime 
     - Movies, Characters, Paintings <-- ⚠️need advice
