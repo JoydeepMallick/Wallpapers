@@ -17,7 +17,8 @@ This is a not just a collection, rather my addiction for art!😻
     - TimelessPainting ✅ Only paintings made with actual brushes and colors from creators
     - VideoWallpapers ✅
     - WideScreen ✅
-    - Abstract
+    - Abstract ✅
+    - PurrfectCats ✅
     - Waifu😽
     - Anime 
     - Movies, Characters <-- ⚠️need advice
@@ -26,7 +27,7 @@ Any recommendations appreciated!
 
 ---
 
-Pls😨 I swear these ain't the links from where I got some of them (**in decreasing order of priority**) :-
+Pls😨 I swear these ain't the links from where I got some of them :-
 
 ### Cool guys listed below, just scroll down!😎
 
