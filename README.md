@@ -45,6 +45,8 @@ Pls😨 I swear these ain't the links from where I got some of them :-
 
 - [linuxdotexe's nordic-wallpapers](https://github.com/linuxdotexe/nordic-wallpapers)
 
+- [danna's wallpaper colletion](https://github.com/notdanna/wallpapers)
+
 ### Solid website with awesome creators😺
 
 - [imag.co wallpapers](https://www.iamag.co/your-name-100-original-background-collection/) : Nice anime scenery wallpapers
