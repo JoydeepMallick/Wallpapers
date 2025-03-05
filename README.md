@@ -39,6 +39,10 @@ Pls😨 I swear these ain't the links from where I got some of them :-
 
 - [JaKooLit's collection](https://github.com/JaKooLit/Wallpaper-Bank)
 
+- [D3Ext's aesthetic collection](https://github.com/D3Ext/aesthetic-wallpapers)
+
+- [5hubham5ingh's Walls Rizzing homie!](https://5hubham5ingh.github.io/WallRizz/) : Huge collection of digital art mostly😲, will take time to load. Check out the 🔥[WallRizz project](https://github.com/5hubham5ingh/WallRizz)🔥.
+
 - [S4NKALP's collection](https://github.com/S4NKALP/Wallpapers)
 
 - [faizan-20's wallpees](https://github.com/faizan-20/wallpees)
@@ -48,6 +52,10 @@ Pls😨 I swear these ain't the links from where I got some of them :-
 - [danna's wallpaper colletion](https://github.com/notdanna/wallpapers)
 
 - [Axenide's wallpaper collection](https://github.com/Axenide/Wallpapers)
+
+- [Mikyuwu's cutie collection](https://github.com/Mikyuwu/Cutie-dots/tree/NEW-Cutie-dots/Wallpapers)
+
+- [ronit18's aesthetic wallpaper collection](https://github.com/ronit18/Asthetic-Wallpapers)
 
 ### Solid website with awesome creators😺
 
