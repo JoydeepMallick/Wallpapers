@@ -96,6 +96,8 @@ Use AI Upscalers to Upscale it, if you have any VULCAN supported device do it di
 
 Trust me! you wont regret it!!!😻
 
+Only general rule of thumb, avoid `webp` as people might have some trouble on Windows settings webp images as wallpaper😿, though workaround exists always, read [this reddit thread](https://www.reddit.com/r/Windows11/comments/vjw0ly/add_set_as_desktop_background_context_menu_entry/).
+
 ## 🙀MEOW!!!
 
 [![Stargazers over time](https://starchart.cc/JoydeepMallick/Wallpapers.svg?variant=adaptive)](https://starchart.cc/JoydeepMallick/Wallpapers)
