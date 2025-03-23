@@ -72,6 +72,10 @@ Pls😨 I swear these ain't the links from where I got some of them :-
 
 - [hdwallpapers.in](https://www.hdwallpapers.in/purple_eyes_baal_raiden_shogun_hd_genshin_impact-wallpapers.html)
 
+- [wallpapercave](https://wallpapercave.com/w/wp12692367)
+
+- [besthdwallpaper](https://www.besthdwallpaper.com/artistic/rezero-starting-life-in-another-world-pack-emilia-half-elf-dt_en-US-8891.html)
+
 - [freepik.com](https://www.freepik.com) : few cool image sample(s) here { [1](https://www.freepik.com/free-photos-vectors/desktop-wallpaper-anime/2#uuid=c8a6a9df-9203-41b7-bbe5-464f9e12acfd) } warning: limited download limit per day😢
 
 - [deviantart](https://www.deviantart.com) : few cool image sample(s) here { [1](https://www.deviantart.com/angel-face125/art/Angel-112-1137618284), [2](https://www.deviantart.com/guweiz/gallery) }
