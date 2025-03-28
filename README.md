@@ -22,7 +22,7 @@ This is a not just a collection, rather my addiction for art!😻
     - DistroLure ✅
     - KawaiiWaifu ✅
     - VariantScenes ✅ Only for wallpapers with multiple scenes, dynamic weather/backgrounds
-    - ChadVault : Under construction👷‍♂️, request from one of fellow redditors!
+    - ChadVault ✅ Under construction👷‍♂️, request from one of fellow redditors!
 
 Any recommendations appreciated!
 
