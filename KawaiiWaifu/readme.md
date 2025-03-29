@@ -23,6 +23,7 @@ This section is exclusively for genuine waifu connoisseurs who truly appreciate 
 
 - [artstation](https://www.artstation.com/user-395872)
 
+- [sekai.best](https://sekai.best/card) : Card related to Project Sekai anime, serve as wonderful collecion of wallpapers, `beauty lies in the eyes of the beholder🥹` comarade.
 
 
 </details>
