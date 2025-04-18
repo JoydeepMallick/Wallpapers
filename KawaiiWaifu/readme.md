@@ -25,6 +25,7 @@ This section is exclusively for genuine waifu connoisseurs who truly appreciate 
 
 - [sekai.best](https://sekai.best/card) : Card related to Project Sekai anime, serve as wonderful collecion of wallpapers, `beauty lies in the eyes of the beholder🥹` comarade.
 
+- [fantasymoe subreddit](https://www.reddit.com/r/fantasymoe/)
 
 </details>
 
