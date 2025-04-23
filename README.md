@@ -64,7 +64,7 @@ Pls😨 I swear these ain't the links from where I got some of them :-
 
 - [pixiv.net](https://www.pixiv.net/en/) : Solid fan arts and waifu creations😻
 
-- [ImaginarySliceOfLife Reddit thread](https://www.reddit.com/r/ImaginarySliceOfLife/?feedViewType=compactView) : pretty underrated but people have put effort to find some of the best works of artists to one place. Other cool threads include {[Art](https://www.reddit.com/r/Art/comments/gkmeye/office_guweiz_digital_painting_2020/) }.
+- [ImaginarySliceOfLife Reddit thread](https://www.reddit.com/r/ImaginarySliceOfLife/?feedViewType=compactView) : pretty underrated but people have put effort to find some of the best works of artists to one place. Other cool threads include { [Art](https://www.reddit.com/r/Art/comments/gkmeye/office_guweiz_digital_painting_2020/) }.
 
 - [rare-gallery](https://rare-gallery.com/) : Underatted and unknown, check the sample(s) { [1](https://rare-gallery.com/5452246-genshin-impact-artwork-lumine-genshin-impact-anime.html) }
 
