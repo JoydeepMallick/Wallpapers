@@ -79,6 +79,8 @@ Pls😨 I swear these ain't the links from where I got some of them :-
 
 - [backiee.com](https://backiee.com/) : Quite good selection, another lesser known website
 
+- [raregallery.com](https://rare-gallery.com/)
+
 - [wallpapersden](https://wallpapersden.com/tag/genshin-impact-wallpapers/)
 
 - [hdwallpapers.in](https://www.hdwallpapers.in/purple_eyes_baal_raiden_shogun_hd_genshin_impact-wallpapers.html)
