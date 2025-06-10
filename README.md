@@ -91,7 +91,7 @@ Pls😨 I swear these ain't the links from where I got some of them :-
 
 - [freepik.com](https://www.freepik.com) : few cool image sample(s) here { [1](https://www.freepik.com/free-photos-vectors/desktop-wallpaper-anime/2#uuid=c8a6a9df-9203-41b7-bbe5-464f9e12acfd) } warning: limited download limit per day😢
 
-- [wallhere](https://wallhere.com/en/wallpapers?NSFW=off)
+- [wallhere](https://wallhere.com/en/wallpapers?NSFW=off) : 🫡Very good website
 
 - [deviantart](https://www.deviantart.com) : few cool image sample(s) here { [1](https://www.deviantart.com/angel-face125/art/Angel-112-1137618284), [2](https://www.deviantart.com/guweiz/gallery) }
 
