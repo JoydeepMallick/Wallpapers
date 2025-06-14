@@ -68,6 +68,8 @@ Pls😨 I swear these ain't the links from where I got some of them :-
 
 - [rare-gallery](https://rare-gallery.com/) : Underatted and unknown, check the sample(s) { [1](https://rare-gallery.com/5452246-genshin-impact-artwork-lumine-genshin-impact-anime.html) }
 
+- [vsthemes.org](https://vsthemes.org/en/wallpapers/girls/69511-wataboku-art.html) : another great collection of anime wallpapers and others!
+
 - [dynamicwallpaper.club](https://dynamicwallpaper.club/gallery) : Dynamic wallpapers for your desktop like day. evening, night, sunset, sunrise, etc.
 
 - [animebg](https://www.animebg.com/type/images/)
