@@ -59,6 +59,8 @@ Pls😨 I swear these ain't the links from where I got some of them :-
 
 - [ronit18's aesthetic wallpaper collection](https://github.com/ronit18/Asthetic-Wallpapers)
 
+- [Ashur-D's collection](https://github.com/Ashur-D/Windows11-Collection-Guide?tab=readme-ov-file#wallpapers)
+
 ### Solid website with awesome creators😺
 
 - [imag.co wallpapers](https://www.iamag.co/your-name-100-original-background-collection/) : Nice anime scenery wallpapers
