@@ -131,6 +131,26 @@ Trust me! you wont regret it!!!😻
 
 Only general rule of thumb, avoid `webp` as people might have some trouble on Windows settings webp images as wallpaper😿, though workaround exists always, read [this reddit thread](https://www.reddit.com/r/Windows11/comments/vjw0ly/add_set_as_desktop_background_context_menu_entry/).
 
+### Want to download a specific folder?
+
+😖 **I know github does not allow downloading folders directly**, you need git and terminal commands to do that but that might be a pain in the a\*\*!
+
+No worries, I have a solution for you!😸
+
+And this works for all github repositories, not just this one!
+
+1. Go to the folder you want to download, for example `KawaiiWaifu` folder in this repo.
+
+2. The url looks like this `https://github.com/JoydeepMallick/Wallpapers/tree/main/KawaiiWaifu`
+
+3. Now just replace `https://github.com/..` with `https://github1s.com/..` and you Web VS CODE like editor pops open😺.
+
+4. Now choose the folder and right click and `Download`.
+
+🔥 Definitely check out [github1s](https://github.com/conwnet/github1s)
+
+**NOTE** : The download button seems to appear just in `Chrome` but does not appear in `brave` or `firefox` for folders specifically.
+
 ## 🙀MEOW!!!
 
 [![Stargazers over time](https://starchart.cc/JoydeepMallick/Wallpapers.svg?variant=adaptive)](https://starchart.cc/JoydeepMallick/Wallpapers)
