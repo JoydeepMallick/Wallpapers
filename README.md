@@ -143,7 +143,7 @@ And this works for all github repositories, not just this one!
 
 2. The url looks like this `https://github.com/JoydeepMallick/Wallpapers/tree/main/KawaiiWaifu`
 
-3. Now just replace `https://github.com/..` with `https://github1s.com/..` and you Web VS CODE like editor pops open😺.
+3. Now just replace `https://github.com/..` with `https://github1s.com/..` and a Web based VS CODE like editor pops open😺.
 
 4. Now choose the folder and right click and `Download`.
 
