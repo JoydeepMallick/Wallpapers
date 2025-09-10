@@ -29,6 +29,8 @@ This section is exclusively for genuine waifu connoisseurs who truly appreciate 
 
 - [pixivison.net](https://www.pixivision.net/en/c/illustration) : very good collection of artist illustrations related to anime, manga, etc.
 
+- [tavern-kuro ai](https://kuro-ai.com/tavern/?wpam_id=82) : generate ai illustrious characters from anime and manga
+
 </details>
 
 #### <abbr title="Arigatō, ojisan"> ありがとう、おじさん。 </abbr>
